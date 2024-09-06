@@ -1,0 +1,7 @@
+- Sup
+- I like horror
+- I'm an artist
+- I'm a voice actor
+- I'm currently training myself in animation
+- He/they
+- Gay
